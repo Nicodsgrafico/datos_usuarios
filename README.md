@@ -1,1 +1,1 @@
-Desafio hecho en conjunto con @IsabelLina2023
+Desafio hecho en conjunto con Isabel
